@@ -2,12 +2,10 @@
 
 
 
+<br><br><br><br><br><br><br><br><br><br><br>
+
+   <img align='right' src='https://user-images.githubusercontent.com/39117380/131990581-af46d70b-ee73-42a4-8572-024249a34fa6.png'>
 
 
 
 
-
-
-
-
-海绵宝宝，快乐是从什么时候开始消失的呢？
